@@ -24,4 +24,4 @@ I am B.Tech AI and DS student preparing for the data scientist
 ---
 [![](https://visitcount.itsvg.in/api?id=dheeraj1122123-glitch&icon=2&color=1)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+https://dheerajprajapatmlmodel.blogspot.com/2026/01/student-analysis-system-academic.html
